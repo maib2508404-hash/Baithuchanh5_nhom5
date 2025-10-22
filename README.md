@@ -21,3 +21,4 @@ Dưới đây là các file được tạo ra từ **Nhiệm vụ 1.1 đến 3.1
 ## 📜 Giấy Phép Sử Dụng
 Nội dung này được cấp phép theo  
 **Creative Commons Attribution 4.0 International (CC BY 4.0)**.
+**Video tạo bởi CapCut, tài liệu từ Pexels,FreeSound  © 2025 by Tuyết Ngân is licensed under Creative Commons Attribution 4.0 International. To view a copy of this license, visit https://creativecommons.org/licenses/by/4.0/
